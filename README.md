@@ -1,6 +1,8 @@
 <h4 align="center">🚀 Stop calling “it's my dream” instead call “it's my goal” and make it happen . Dream is just an illusion</h3>
 
-![my face wallpaper (1)](https://github.com/user-attachments/assets/85f35c45-d49c-4f6f-9fbf-287cdcf76558)
+
+![wallapaper 2](https://github.com/user-attachments/assets/29b288aa-20ce-4d6b-a914-a176e436cf01)
+
 
 
 <h1 align="center">Hi 👋, I'm Vigneswaran (aka Vicky)</h1>
