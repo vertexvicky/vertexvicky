@@ -1,6 +1,6 @@
 <h4 align="center">🚀 Stop calling “it's my dream” instead call “it's my goal” and make it happen . Dream is just an illusion</h3>
 
-<h1 align="center">Hi 👋, I'm Vigneswaran (aka Vicky)</h1>
+<h1 align="center">Hi 👋, I'm Vigneswaran (aka vertexvicky)</h1>
 
 <p align="center">
   <a href="mailto:vertexvigneshwaran@gmail.com" target="_blank">
